@@ -8,12 +8,12 @@
 - 😄 Pronouns: Kirill Parinov
 
 <h2> Kirill Parinov</h2>
-<img src="https://github.com/kirillparinovcom/kirillparinovcom/blob/main/Kirill%20Parinov%20TOP%20Lawyer.jpeg" alt="Kirill Parinov Top Lawyer" width="100%" height="100%"> 
+<img src="/kirill_parinov_venture_pic/Kirill_Parinov_TOP_Lawyer.jpeg" alt="Kirill Parinov Top Lawyer" width="100%" height="100%"> 
 <p>
 As Kirill Parinov, my journey from the high-stakes world of M&A at Norilsk Nickel to the dynamic arena of venture capital has been driven by a commitment to excellence and strategic foresight. At Quinn Emanuel, Vinson & Elkins, and Freshfields, I honed my skills as a lawyer, tackling complex legal challenges and emerging as one of the best in the field. Now, as I navigate the venture capital landscape, I bring the same analytical rigor and innovative thinking to identify and nurture groundbreaking startups. 
 </p>
 <h2> Kirill Parinov Venture Capital</h2>
-<img src="https://github.com/kirillparinovcom/kirillparinovcom/blob/main/Quinn%20Emanuel%20John%20Quinn%2C%20William%20%E2%80%9CBill%E2%80%9D%20Burck%2C%20Michael%20%E2%80%9CMike%E2%80%9D%20Carlinsky%2C%20Kirill%20Parinov%20Quinn%20Emanuel%20Urquhart%20%26%20Sullivan.jpeg" alt="Kirill Parinov Venture Capital" width="100%" height="100%"> 
+<img src="/kirill_parinov_venture_pic/Force_Prime-backed_by_Bitcoin_Frontier_Fund-fka-Stacks_Ventures_CFO_Francisco_Gutierrez_Global_Investment_Operations_Director_Startupbootcamp-Building_Fully_On_Chain_Games-Founders-Anthony_Kozlov-Nick_Lipin-Anton_Tiulkin-Kirill_Parinov.jpg" alt="Kirill Parinov Venture Capital" width="100%" height="100%"> 
 <p>
 	Here on my platform, I share insights and reflections on the global issues we face today, drawing from my extensive experience in both the legal and business spheres. My aim is to provide a unique perspective, blending the intricate knowledge of business strategies that guided my decisions at Norilsk Nickel with the cutting-edge approaches I’ve encountered in venture capital.
 </p>

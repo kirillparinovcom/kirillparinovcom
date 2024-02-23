@@ -20,6 +20,12 @@ As Kirill Parinov, my journey from the high-stakes world of M&A at Norilsk Nicke
 <p>
 Join me as we explore these challenges together, applying the lessons I’ve learned and the strategies I’ve developed throughout my career. It’s a journey of continuous learning and adaptation, much like the ever-evolving landscape of global business and law.
 </p>
+<h2> Kirill Parinov 2024: Vision 2030 The Garage Riyadh, The Kingdom Of Saudi Arabia</h2>
+<img src="/kirill_parinov_venture_pic/Kirill_Parinov_Strategic_Growth_2024_theKingdom_of_Saudi_Arabia.jpeg" alt="Kirill Parinov 2024: Vision 2030 The Garage Riyadh, The Kingdom Of Saudi Arabia" width="100%" height="100%"> 
+<p>
+Kirill Parinov spearheads strategic growth within the vibrant ecosystem of the Garage GAIA AI Accelerator, powered by a team of visionaries including Pawel Czech, Simon Olson, and Anas Agag from NewNative. This haven for startups like Get Outfit AI redefines how we perceive fashion technology, backed by the wisdom of mentors like Monica Hedberg, Omar Z. Aridi, and Ghaith Alghamdi, who guide through the intricacies of the startup world
+</p>
+<img src="/kirill_parinov_venture_pic/Kirill_Parinov_Strategic_Growth_2024_the_Garage_Riyadh_GAIA_AI_accelerator .jpeg" alt="Kirill Parinov 2024: Vision 2030 The Garage Riyadh, The Kingdom Of Saudi Arabia" width="100%" height="100%"> 
 
 <!---
 kirillparinovcom/kirillparinovcom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
